@@ -14,5 +14,8 @@ SALUTATIONS! **Kasper**—,  I believe everyone should be free to enjoy fiction 
 || he/him , puppy/paw/paws , they/it/its - ||
 
 
-![],=<img src="https://i.pinimg.com/736x/72/29/12/72291200294e31a45b18e5e84074a6c9.jpg" alt="Story pin image"/><img width="736" height="594" alt="image" src="https://github.com/user-attachments/assets/0c35218c-2d82-4185-9be2-2c2aef77a74c" />
+!<img src="https://i.pinimg.com/736x/72/29/12/72291200294e31a45b18e5e84074a6c9.jpg" alt="Story pin image"/><img width="736" height="594" alt="image" src="https://github.com/user-attachments/assets/3681186c-d7e0-401a-a197-2f7cfd049952" />
+
+
+
 
