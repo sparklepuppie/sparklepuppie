@@ -1,12 +1,14 @@
-# Kole/kasper +
+# Kole/kasper +   ****UNDER 15 DNI !!****
 
 ---> **kasper !!** no i **wont help with build limit**  
 || he/him , puppy/paw/paws , they/it/its - ||
 
 ## About
 
-SALUTATIONS! **Kasper**—,  I believe everyone should be free to enjoy fiction without harassment. just block/unfollow me at this point, im open about it now.
+SALUTATIONS! —, its just fiction dudes why harass? ;3. just block/unfollow me at this point, im open about it now.
 
+i am 16 (1/2), i love warriors, and have a book obsession.
+**DNI IF**:  dislike warriors, are an anti, or your jst a weirdo
 
 
 
