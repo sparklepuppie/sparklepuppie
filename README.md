@@ -1,4 +1,4 @@
-# Kole/kasper +   ****UNDER 15 DNI !!****
+# Kole/kasper +   ****UNDER 13 DNI !!****
 
 ---> **kasper !!** no i **wont help with build limit**  
 || he/him , puppy/paw/paws , they/it/its - ||
