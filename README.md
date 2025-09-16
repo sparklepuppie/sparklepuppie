@@ -13,7 +13,7 @@ i am 16 (1/2), i love warriors, and have a book obsession.
 
 
 
-!<img<img src="https://i.pinimg.com/736x/17/ce/6a/17ce6a1dded53a6606fd0c65df321fb6.jpg" alt="Story pin image"/>![Uploading image.png…]()
-"/>
+!<img< src="https://i.pinimg.com/736x/17/ce/6a/17ce6a1dded53a6606fd0c65df321fb6.jpg" alt="Story pin image"/>![Uploading image.png…]()
+
 
 
