@@ -8,8 +8,4 @@
 
 i am 16 (1/2), i love warriors, and have a book obsession.
 **DNI IF**: , are an anti, or your jst a weirdo 𖤐 
-!(<img src="https://i.pinimg.com/736x/4d/64/40/4d64404e199b5ecb2174412a0c50c585.jpg">
-
-
-
-
+!(<img <img src="https://media1.tenor.com/m/HSsOFsjQb2wAAAAC/gorillaz-2d.gif">
