@@ -14,3 +14,8 @@
 i am 16 (1/2), i love warriors, and have a book obsession.
 **DNI IF**: , are an anti, or your jst a weirdo 𖤐 
 !(<img  src="https://media1.tenor.com/m/HSsOFsjQb2wAAAAC/gorillaz-2d.gif">
+
+
+
+ <img src="https://raining-starss.neocities.org/doot%20(3).png"/>  <img src="https://raining-starss.neocities.org/garfpenis%20(4).png"/> <img src="https://raining-starss.neocities.org/23523534%20(4).png"/>
+<img src="https://raining-starss.neocities.org/plugplug%20(1).gif"/>
