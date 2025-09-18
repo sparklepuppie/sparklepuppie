@@ -1,4 +1,6 @@
 # Kole/ember +   ****UNDER 13 DNI !!****
+<img src="https://i.postimg.cc/7YJrbwTz/IMG-9349.png"/>
+
 
 ---> **kasper !!** no i **wont help with build limit**  
 || he/him , puppy/paw/paws , they/it/its - ||
@@ -8,4 +10,4 @@
 
 i am 16 (1/2), i love warriors, and have a book obsession.
 **DNI IF**: , are an anti, or your jst a weirdo 𖤐 
-!(<img <img src="https://media1.tenor.com/m/HSsOFsjQb2wAAAAC/gorillaz-2d.gif">
+!(<img  src="https://media1.tenor.com/m/HSsOFsjQb2wAAAAC/gorillaz-2d.gif">
