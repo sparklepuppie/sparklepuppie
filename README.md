@@ -1,6 +1,5 @@
 # Kole/ember +   ****UNDER 13 DNI !!****
-<img src="https://media1.tenor.com/m/qRqU-R1-XSIAAAAd/gorillaz-funky-monkey-friday.gif" alt="a group of cartoon characters are gathered around a man in a military uniform"/><img width="640" height="358" alt="image" src="https://github.com/user-attachments/assets/5eb52f99-414c-48d7-a01e-12ecd8e8e02e" />
- 0o0o...               
+<img src="https://media1.tenor.com/m/xJFwqBNAms8AAAAC/noodle-gorillaz.gif" alt="a cartoon character is sitting in a hole in the ground next to a man in a tank ."/>
 
 ---> **kole // ember // kasper !!** no i **wont help with build limit**  
 || he/him , puppy/paw/paws , they/it/its - ||
