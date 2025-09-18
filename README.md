@@ -1,5 +1,6 @@
 # Kole/ember +   ****UNDER 13 DNI !!****
-<img src="https://i.postimg.cc/7YJrbwTz/IMG-9349.png"/> 0o0o...
+<img src="https://i.postimg.cc/7YJrbwTz/IMG-9349.png"/> 0o0o...               <img src="https://i.postimg.cc/dVqdGW3d/IMG-8223.webp" alt="29"/>
+
 
 
 ---> **kasper !!** no i **wont help with build limit**  
