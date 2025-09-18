@@ -8,8 +8,8 @@
 
 
 ⁺‧₊˚ஓ༻♱♱༺ஓ˚₊‧⁺⁺‧₊˚ஓ༻♱♱༺ஓ˚₊‧⁺⁺‧₊˚ஓ༻♱♱༺ஓ˚₊‧⁺⁺‧₊˚ஓ༻♱♱༺ஓ˚₊‧⁺
-## About
-𖤐 —, its just fiction dudes why harass? ;3. just block/unfollow me at this point, im open about it now. 𖤐
+## XoX
+𖤐 —, im very "ship and let ship".. ,. just block/unfollow me at this point, im open about it now. 𖤐
 
 i am 16 (1/2), i love warriors, and have a book obsession.
 **DNI IF**: , are an anti, or your jst a weirdo 𖤐 
