@@ -18,3 +18,4 @@ i am 16 (1/2), i love warriors, and have a book obsession.
 
  <img src="https://raining-starss.neocities.org/doot%20(3).png"/>  <img src="https://raining-starss.neocities.org/garfpenis%20(4).png"/> <img src="https://raining-starss.neocities.org/23523534%20(4).png"/>
 <img src="https://raining-starss.neocities.org/plugplug%20(1).gif"/>
+<img src="https://media.tenor.com/gxv1pB2vEFsAAAAi/nyan-cat-nyan.gif" alt="a pixel art of a cat with a rainbow colored background"/>
