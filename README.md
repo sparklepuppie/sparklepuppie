@@ -3,7 +3,11 @@
 
 ---> **kole // ember // kasper !!** no i **wont help with build limit**  
 || he/him , puppy/paw/paws , they/it/its - ||
+
+
 <img src="https://media1.tenor.com/m/c83GGbgFvukAAAAd/gorillaz-noodle.gif" alt="a cartoon of a room with the word noodle on the bottom right"/>
+
+
 ⁺‧₊˚ஓ༻♱♱༺ஓ˚₊‧⁺⁺‧₊˚ஓ༻♱♱༺ஓ˚₊‧⁺⁺‧₊˚ஓ༻♱♱༺ஓ˚₊‧⁺⁺‧₊˚ஓ༻♱♱༺ஓ˚₊‧⁺
 ## XoX
 𖤐 —, im very "ship and let ship" / profiction .. ,. just block/unfollow me at this point, im open about it now. 𖤐
