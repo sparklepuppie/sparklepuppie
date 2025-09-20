@@ -1,5 +1,5 @@
 # Kole/ember +   ****UNDER 13 DNI !!****
-<img src="https://media1.tenor.com/m/xJFwqBNA
+
 
 ---> **kole // ember // kasper !!** no i **wont help with build limit**  
 || he/him , puppy/paw/paws , they/it/its - ||
