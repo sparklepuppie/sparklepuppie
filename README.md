@@ -12,9 +12,7 @@
 i am 16 (1/2), i love warriors, and have a book obsession.
 **DNI IF**: , are an anti, or your jst a weirdo 𖤐 
 
-
-<img src="https://media.tenor.com/dyZle-ekEZcAAAAi/gorillaz.gif" alt="a cartoon character in a blue suit is dancing with her eyes closed"/>
-
+<img src="https://media1.tenor.com/m/qvs75qUPoX0AAAAd/noodle-gorillaz.gif" alt="a cartoon character wearing a mask with a butterfly painted on it"/
 
  <img src="https://raining-starss.neocities.org/doot%20(3).png"/>  <img src="https://raining-starss.neocities.org/garfpenis%20(4).png"/> <img src="https://raining-starss.neocities.org/23523534%20(4).png"/>
 <img src="https://raining-starss.neocities.org/plugplug%20(1).gif"/>
