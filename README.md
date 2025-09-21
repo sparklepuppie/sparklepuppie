@@ -20,7 +20,7 @@
 ## , i make sxual jokes, that may make u uncomfortable.. if this makes u uncomf, please ignore/tell me. .ᐟ
  
  ## ⚠︎-⚠︎ —, i have bad coping mechanisms. im trying to get help. <  .ᐟ
- ## i get really annoyed when u make me do things.. .ᐟ
+ ##  .ᐟ
  
 
  <img src="https://raining-starss.neocities.org/doot%20(3).png"/>  <img src="https://raining-starss.neocities.org/garfpenis%20(4).png"/> <img src="https://raining-starss.neocities.org/23523534%20(4).png"/><img src="https://raining-starss.neocities.org/plugplug%20(1).gif"/>
