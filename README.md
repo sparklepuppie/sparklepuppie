@@ -1,12 +1,12 @@
 # Kole/ember +   ****UNDER 13 DNI !!****
-
+![Fingernails Badge](https://visitor-badge.laobi.icu/badge?page_id=sparklepuppie_sparklepuppie&title=Fingernails&color=white)
 
 ---> **kole // ember // kasper !!** no i **wont help with build limit**  
 || he/him , puppy/paw/paws , they/it/its - ||
 
 𓏵
 
-𓏵
+𓏵  
 
 𓏵
 
