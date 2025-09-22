@@ -2,7 +2,7 @@
 ![Fingernails Badge](https://visitor-badge.laobi.icu/badge?page_id=sparklepuppie_sparklepuppie&title=Fingernails&color=white)
 
 ---> **kole // ember // kasper !!** no i **wont help with build limit**  
-|| he/him , puppy/paw/paws , they/it/its - ||
+|| unlabed-it.its or refer to me as who im cosplaying as ! ||
 
 𓏵
 
