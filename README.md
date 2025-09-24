@@ -16,7 +16,7 @@
 
 𓏵
 
-𓏵
+##   i am simply Anti-harassment, | dark and SOME coms make me uncomfortable.
 ## , i make sxual jokes, that may make u uncomfortable.. if this makes u uncomf, please ignore/tell me. .ᐟ
  
  ## ⚠︎-⚠︎ —, i have bad coping mechanisms. im trying to get help. <  .ᐟ
