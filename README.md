@@ -2,7 +2,7 @@
 ![Fingernails Badge](https://visitor-badge.laobi.icu/badge?page_id=sparklepuppie_sparklepuppie&title=Fingernails&color=white)
 
 ---> **kole // ember // kasper !!** no i **wont help with build limit**  
-|| unlabed-it.its or refer to us as who we are cosplaying as ! ||
+|| unlabed-it.its or refer to me/faust as who we are cosplaying as ! ||
 
 𓏵
 
@@ -18,7 +18,7 @@
 
 ##   we are simply Anti-harassment, | harassment isnt deserved in any manor.\
 
- ## ⚠︎-⚠︎ —, we have bad coping mechanisms. we are trying to get help. <  .ᐟ
+ ## ⚠︎-⚠︎ —, me and faust have bad coping mechanisms. we are trying to get help. <  .ᐟ
  ##  .ᐟ
  
 
