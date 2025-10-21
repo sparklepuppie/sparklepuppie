@@ -6,7 +6,7 @@
 
 
 εѵε૨εรƭ :3 σ૨ ҡσℓε 
-- pup / he / any
-- i lwuv cuds
+- literallt just a warrior cat
+- i don't like rp when im on main map.. (PLEASESTOPSJSJJSJS)
 - - int!
  
