@@ -6,7 +6,7 @@
 
 
 εѵε૨εรƭ :3 σ૨ ҡσℓε 
-- literallt just a warrior cat
+- literally just a warrior cat
 - i don't like rp when im on main map.. (PLEASESTOPSJSJJSJS)
 - - int!
  
