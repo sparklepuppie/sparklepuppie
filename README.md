@@ -1,6 +1,6 @@
 
- ||![⚝ Badge](https://visitor-badge.laobi.icu/badge?page_id=sparklepuppie_sparklepuppie&title=⚝&color=black) ||
-- bit of a introooo...
+ ||![visitors](https://shields.io/badge/visitors-998-red) ||
+- bit of a introooo.
 - rae / raine
 - he/him it/its
 - im very kind of.. "let ships be ships" but dont mistake me for a proshipper.
