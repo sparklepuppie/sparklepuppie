@@ -1,5 +1,5 @@
 
-![Fingernails Badge](https://visitor-badge.laobi.icu/badge?page_id=sparklepuppie_sparklepuppie&title=Fingernails&color=white)
+ ||![⚝ Badge](https://visitor-badge.laobi.icu/badge?page_id=sparklepuppie_sparklepuppie&title=⚝&color=black) ||
 - bit of a introooo...
 - rae / raine
 - he/him it/its
