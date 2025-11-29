@@ -1,5 +1,5 @@
 
- ||![visitors](https://shields.io/badge/✦-1.3k-red) ||
+ ||![visitors](https://shields.io/badge/✦-1.3k-red) || > archived
 - bit of a introooo.
 - rae / raine
 - he/him it/its
