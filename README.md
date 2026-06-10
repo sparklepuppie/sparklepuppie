@@ -7,7 +7,7 @@
 
 -✦its/it preferred * ': . 
 
--✦ \ nonbinary / lesboy /
+-✦ \ nonbinary / lesboy / bodily.
 
  | our interests / fandoms | • tadc . warrior cats  . dw . crk . pokemon . carebears . minecraft . hellokitty and friends . crafting / art / kandi . collecting rare items / figures . photography . music . 
 
