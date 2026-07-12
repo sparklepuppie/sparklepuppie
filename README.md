@@ -5,9 +5,9 @@
 
 -✦rae / raine / raymond * . _ !
 
--✦its/it preferred * ': . 
+-✦its/it and she/her preferred * ': . 
 
--✦ \ nonbinary / lesboy / 
+-✦ \ nonbinary bisexual thing / 
 
  | our interests / fandoms | • tadc . warrior cats  . dw . crk . pokemon . carebears . minecraft . hellokitty and friends . crafting / art / kandi . collecting rare items / figures . photography . music . 
 
