@@ -1,7 +1,6 @@
 
- ||![visitors](https://shields.io/badge/✦-67-red) || > .
 
--✦ our intro . !
+-✦ intro . 
 
 -✦rae / raine / raymond * . _ !
 
