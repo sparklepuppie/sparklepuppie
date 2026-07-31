@@ -3,5 +3,4 @@
 
 ## **introduction**
 <br/>
-Hello! (people i assume are from ponytown) I am Rae, also kmown as Raine or raymond. I love nature and anything about cats. 
-
+Hello! (people i assume are from ponytown) I am Rae, also kmown as Raine or raymond. I love nature and anything about cats.<br/> Pronouns are She/it <ins>please don't use He/him when referring to me.<ins>
