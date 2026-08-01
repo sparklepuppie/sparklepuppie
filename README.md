@@ -5,4 +5,16 @@
 Hello! (people i assume are from ponytown) I am Rae, also known as Raine or raymond. I love nature and anything about cats.<br/> Pronouns are She/it please don't use He/him when referring to me.
 
 ## fandom/interests
-uhh wip :3
+Mlp / Equestria girls
+
+Warrior cats
+
+Dangaronpa
+
+
+Scott pilgrim
+
+
+HL/LT
+
+gorillaz
