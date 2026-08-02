@@ -16,3 +16,6 @@ Hello! (people i assume are from ponytown) I am Rae, also known as Raine or raym
 𓏵 ⌞ HL/LT ⌝
 
 𓏵 ⌞ Gorillaz ⌝
+
+
+<img width="450" height="450" alt="17857104255575418164657386178885" src="https://github.com/user-attachments/assets/d5170b36-4f20-442e-940b-7b02537dbba8" />
