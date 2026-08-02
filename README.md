@@ -1,20 +1,18 @@
 
  <img width="1000" height="125" alt="1764377000318417241901430045014" src="https://github.com/user-attachments/assets/b9849009-1d26-48c3-b5a1-cce383b43ccb" />
 
-## **introduction**
+## **➤ introduction.ᐟ**
 Hello! (people i assume are from ponytown) I am Rae, also known as Raine or raymond. I love nature and anything about cats.<br/> Pronouns are She/it please don't use He/him when referring to me.
 
-## fandom/interests
-Mlp / Equestria girls
+## ➤ fandom/interests.ᐟ
+𓏵 ⌞ Mlp / Equestria girls ⌝
 
-Warrior cats
+𓏵 ⌞ Warrior cats ⌝
 
-Dangaronpa
+𓏵 ⌞ Danganronpa ⌝
 
+𓏵 ⌞ Scott pilgrim ⌝
 
-Scott pilgrim
+𓏵 ⌞ HL/LT ⌝
 
-
-HL/LT
-
-gorillaz
+𓏵 ⌞ Gorillaz ⌝
