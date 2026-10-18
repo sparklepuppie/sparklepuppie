@@ -5,6 +5,12 @@
 Hello! (people i assume are from ponytown) I am Rae, also known as Raine or raymond. I love nature and anything about cats.<br/> Pronouns are She/it please don't use He/him when referring to me.
 
 ## ➤ fandom/interests.ᐟ
-wip revamp
+dandy's world : fandom iwc
+
+Pokemon : fandom iwc
+
+warriors (book series) :
+
+^ these are just all of my main fandoms, im too lazy to write all of them.
 
 
